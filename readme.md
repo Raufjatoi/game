@@ -1,2 +1,2 @@
 ## game by crush course ai lab
-make the copy of it while watchin tha video , but didnt have much fun well you can try it too if you like, just click [here (https://youtu.be/osbmLJb2Tkc?si=0O35SaSKKjcYXqvJ)] it giv ya more info bout the game too so ye have fun figurin out 
+make the copy of it while watchin tha video , but didnt have much fun well you can try it too if you like, just click here > https://youtu.be/osbmLJb2Tkc?si=0O35SaSKKjcYXqvJ, it giv ya more info bout the game too so ye have fun figurin out )
